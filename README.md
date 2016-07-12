@@ -1,3 +1,3 @@
 # python-primary
-just a  python repository
-always read me first
+# why i cannot use it privaately  without paying?
+# anyway  time to go 
